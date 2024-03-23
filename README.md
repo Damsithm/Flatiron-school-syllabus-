@@ -1,1 +1,1 @@
-# Flatiron-school-syllabus-course content 60 week program 
+# Flatiron-school-syllabus for course  60 week program 
